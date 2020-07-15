@@ -2,6 +2,9 @@
 Public Repository 
 
 Hi, I'm Dann, @codewithdann
-I'm a technoholic guy with understanding with different programming languages and markup languages. 
+Future Software Engineer and Developer
 
-Made With Caffeine
+@danngilofficial@gmail.com
+[ +63 945 4903 053
+
+
